@@ -1,4 +1,4 @@
-# Hi there, I'm Sojin Park! 👋
+# Hi there, I'm So Jin Park! 👋
 
 ### Interaction Designer & Creative Technologist
 
